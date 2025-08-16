@@ -1,1 +1,1 @@
-http://paihuai.vip/
+http://blog.paihuai.vip/
